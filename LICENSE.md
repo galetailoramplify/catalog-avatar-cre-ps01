@@ -1,4 +1,4 @@
-#  
+#  enter brainrot heads Scripts new offers the most advanced enter brainrot heads Script, with silent aim and auto-collect. Perfect for dominating any
 
 
 
